@@ -1,2 +1,1 @@
-# Hi
-I'm a smol content creator
+I'm Monkey D Luffy, and sure thing—I'm just some little creator here on YouTube, trying to make that first milestone: 1,000 subscribers. It ain't simple, but I like making stuff. Each video I release is something I've given it my all to, whether it's gameplay, humor segments, or just me being real. I know I’m not the biggest channel out there, but each time someone subscribes, it feels like I’m one step closer to making this dream a reality. I’m not chasing fame—I just want to build a community, make people smile, and keep getting better. If you’ve found your way to my channel, thanks for giving it a shot. You’re part of something that’s just getting started. 
